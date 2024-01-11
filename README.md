@@ -4,7 +4,7 @@
 - 💞️ I’m looking to do my best everyday 
 - 📫 How to reach me be very kind person, and respected .
 - 😄 Pronouns: You
-- ⚡ Fun fact: I´m very bipolar
+- ⚡ Fact about me: I´m very kind person
 
 <!---
 marianaldb/marianaldb is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
